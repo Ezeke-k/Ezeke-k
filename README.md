@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ezeke-k
+- 👋 Hi, I’m @EzequielKumiec
 - 👀 I’m interested in boca
 - 🌱 I’m currently learning bocaaaa
 - 💞️ I’m looking to collaborate on bokeee
